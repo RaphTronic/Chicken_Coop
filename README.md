@@ -7,6 +7,7 @@ Background and details in this post: https://raphtronic.blogspot.com/2024/11/chi
 Happy chickens and savory eggs to all !
 
 
+
 ![coop 7](https://github.com/user-attachments/assets/fb80034b-0581-4378-b0b2-f8f8ca43f680)
 
 ![coop 2](https://github.com/user-attachments/assets/2e9952ae-48d6-4ed1-b9c5-408217be1b9d)
