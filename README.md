@@ -4,6 +4,8 @@
 
 Background and details in this post: https://raphtronic.blogspot.com/2024/11/chicken-coop-3d-models.html
 
+Feel free to copy / remix / whatever.
+
 Happy chickens and savory eggs to all !
 
 
